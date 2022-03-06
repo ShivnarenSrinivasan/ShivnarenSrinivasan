@@ -1,1 +1,1 @@
-Interested in AI/ML and Python.
+Passionate about machine learning and building intelligent systems.
